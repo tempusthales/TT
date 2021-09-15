@@ -5,7 +5,7 @@ a 🎒 [backpacking](https://en.wikipedia.org/wiki/Backpacking_(hiking)) aficion
 a husband and a father 👩‍👩‍👦‍👦 of four.  He also has a 🐕‍🦺 and a 🐈.
 
 He is terrible at [Twitter](https://twitter.com), is mostly inactive on [Facebook](https://www.facebook.com/gilbertpalau), [LinkedIn](https://www.linkedin.com/in/gilbertpalau/), occasionally posts comments to [dev.to](https://dev.to/tempusthales) and lurks in the 
-popular dead comedy website [forums.somethingawful.com](https://forums.somethingawful.com).  He's part of the team behind [Goon Discord Network](https://goondiscordnetwork.com)
+popular dead comedy website [forums.somethingawful.com](https://forums.somethingawful.com).  He's part of the team behind [Goon Discord Network](https://goondiscordnetwork.com) and he is credited with the design and concept of the project.
 
 He admires, in particular, the works of [John Carmack](https://en.wikipedia.org/wiki/John_Carmack), [Robin Williams](https://en.wikipedia.org/wiki/Robin_Williams), [Guy-Manuel de Homem-Christo](https://en.wikipedia.org/wiki/Guy-Manuel_de_Homem-Christo), [Thomas Bangalter](https://en.wikipedia.org/wiki/Thomas_Bangalter), [Steve Jobs](https://en.wikipedia.org/wiki/Steve_Jobs), [Giorgo Moroder](https://en.wikipedia.org/wiki/Giorgio_Moroder), [Rebecca Heineman](https://en.wikipedia.org/wiki/Rebecca_Heineman) and [Matt Miller](https://millerti.me).
 
